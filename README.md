@@ -1,2 +1,3 @@
 # Fourside-Studios.github.io
-Fourside Studios NEW Website
+Fourside Studios blog!!!!!
+it's pretty cool methinks :>
